@@ -1,1 +1,0 @@
-# Demostraci-n-del-axioma-del-extremo-superior
